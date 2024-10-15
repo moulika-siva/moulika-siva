@@ -5,11 +5,15 @@ EDUCATION
 Jonathan Law High School, Milford, CT  (4.8617 / 5.0 GPA) 		   Graduation Date: June 2024
 Relevant coursework: AP CSA, AP Computer Science Principles, AP Macroeconomics, AP Calculus AB, AP Statistics 
 High Honors: Grades 9-12
-Graduated as Salutatorian with …
+Graduated as Salutatorian with  Summa Cum Laude
  
 University of Connecticut, Storrs, CT	      			                   September 2022 – May 2023
 Dual Enrollment 
 Completed General Chemistry 1 & 2 course and earned an “A”
+
+Northeastern University, Boston, MA		   	           Expected Graduation: May 2028
+Studying Computer Science and Business Administration
+In the John Martinson Honors Program
 
 VOLUNTEERISM
 Teen Advisory Group, Milford, CT         	   				               9/2021-5/2023
@@ -62,6 +66,3 @@ Intern with Data Specialist
 Analyze the school’s SAT and NGSS scores, work on the Master Schedule, Locker Assignments, and other data for the upcoming school year
 Was the first student to obtain an Administrative PowerSchool account
 Praised by the Assistant Principal and my Site Supervisor when completing my tasks, specifically when analyzing data
-
-
-
