@@ -1,5 +1,5 @@
 Moulika Sivalenka 	
-(475) 339-1348 · 23 Barberry Court, Milford, CT 06461 · sivalenkamoulika@gmail.com    	
+(475) 339-1348 · 23 Barberry Court, Milford, CT 06461 · mousivalenka@gmail.com    	
 
 EDUCATION
 Jonathan Law High School, Milford, CT  (4.8617 / 5.0 GPA) 		   Graduation Date: June 2024
